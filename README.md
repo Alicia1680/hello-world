@@ -1,1 +1,1 @@
-# hello-world I am a 41 yo wife & mother of 4  
+# hello-world I am a 41 yo entrepreneur.  
